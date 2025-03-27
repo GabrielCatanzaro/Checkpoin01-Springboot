@@ -1,9 +1,6 @@
 
-
-
-
-
 Antes das mudanças
+
 ![image](https://github.com/user-attachments/assets/ce973c22-b5fe-4e0c-9cae-ea948724a9db)
 
 
